@@ -2,7 +2,7 @@
 
 Traducido por Traduction Club!
 
-Creador: ?
+Creador: Simbaflufball
 
 En caso de que presentes algún error puedes ponerte en contacto con nosotros en nuestro servidor de Discord, un miembro del club te atenderá en el canal "Solución de problemas".
 
